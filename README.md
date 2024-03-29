@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @CellyBoy
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on dono
-- 📫 How to reach me ur gay? 
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me... ur gay? 
 - 😄 Pronouns: bruh
-- ⚡ Fun fact: i am brasilian
+- ⚡ Fun fact: I´m Brazilian
 
 <!---
 CellyBoy/CellyBoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
